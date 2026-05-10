@@ -10,6 +10,7 @@ I believe in breaking things *ethically* to understand them better.
 
 🛡️ Always learning. Always leveling up.
 
+<img width="1024" height="1024" alt="Redv1sion" src="https://github.com/user-attachments/assets/f83e0c15-9547-4441-8fc0-20cb0f434413" />
 
 
 ---
